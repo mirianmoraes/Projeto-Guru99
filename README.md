@@ -27,4 +27,4 @@ Dia 11 - Recebi o e-mail do dia, onde foi enviado mais dois links, um de rastrad
 Dia 12 - Recebi o penúltimo e-mail hoje. A versão 4 do site foi criada, recebi o link para ter acesso, e realizar novos casos de testes e atualizar o gerenciador de bugs.
 Dia 13 - Foi anunciado que o projeto foi concluído com sucesso! O site chegou ao ar, e com todo o meu esforço e dedicação durante esses 13 dias, foi relatado que ele se encontra seguro e livre de bugs. 
 
-Para você que chegou até aqui, meu muito obrigado! Estou bem mais confiante hoje, e me sinto mais segura e capaz de realizar projetos que a mim forem solicitados! Posso concluir que adquiri mais conhecimento e experiência na área de testes! Espero que tenha gostado, e estou a disposição para quaisquer dúvidas! 
+Para você que chegou até aqui, meu muito obrigado! Estou bem mais confiante hoje, e me sinto mais segura e capaz de realizar projetos que a mim forem solicitados! Posso concluir que adquiri mais conhecimento e experiência na área de testes! Espero que tenha gostado, e estou a disposição para quaisquer dúvidas! Se você gostou, deixe um ❤!
